@@ -1,0 +1,2 @@
+# jul-resolusi
+mencobaa yaaa
